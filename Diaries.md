@@ -1,6 +1,10 @@
 ## Mercredi, 2024/01/03
 - 法语学习方面，可以找一个对话型的podcast，用来积累口语；然后再找一个新闻型的programme，用来积累词汇和短语。
+    - Easy French
 - By the end of the day, think what you have done today to make yourself happy or healthy. 
+    - made and had corn juice
+    - played Ping Pong with colleague
+
 
 ## Dimanche, 2023/11/05
 - [ ] 购买新的日记本、垃圾袋和拖鞋  
