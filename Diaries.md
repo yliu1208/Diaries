@@ -1,22 +1,28 @@
-## Mercredi, 2024/01/03
-- 法语学习方面，可以找一个对话型的podcast，用来积累口语；然后再找一个新闻型的programme，用来积累词汇和短语。
-    - Easy French
-- By the end of the day, think what you have done today to make yourself happy or healthy. 
-    - made and had corn juice
-    - played Ping Pong with colleague
+## Mardi, 2024/01/09
 
+今天情绪感觉有点低落。下班后躺在床上，听“安河桥”的时候给听哭了。音乐确实是很神奇，小时候常常看电视看哭，长大后已经很难看电视剧看哭，但最近几年，常常在听音乐的时候听哭，就好像音乐突然唤起了内心深处的一些情绪。  
+下午的时候查了下，我养了两三年的植物，名字原来叫 Peace Lily。
+
+## Mercredi, 2024/01/03
+
+- 法语学习方面，可以找一个对话型的 podcast，用来积累口语；然后再找一个新闻型的 programme，用来积累词汇和短语。
+  - Easy French
+  - InnerFrench
+- By the end of the day, think what you have done today to make yourself happy or healthy.
+  - made and had corn juice
+  - played Ping Pong with colleague
 
 ## Dimanche, 2023/11/05
-- [ ] 购买新的日记本、垃圾袋和拖鞋  
-- [ ] 继续思考self reinvention  
-- [ ] 整理房间  
 
+- [ ] 购买新的日记本、垃圾袋和拖鞋
+- [ ] 继续思考 self reinvention
+- [ ] 整理房间
 
 ## Samedi, 2023/11/04
-早上起来嘴唇就已经肿得不行了，并有了新的疱疹。过去的三四年，身体素质和免疫力一直在不停往下降，随之而来非常多的慢性疾病。其中很重要的一个原因是多次感染新冠。如今，真的到了不得不改变自己生活方式，努力提升免疫力的时候了。这几天就在想一个词：self reinvention。为什么有人能做到早起，而我一直做不到？为什么有人能去健身房锻炼，而我做不到？  
+
+早上起来嘴唇就已经肿得不行了，并有了新的疱疹。过去的三四年，身体素质和免疫力一直在不停往下降，随之而来非常多的慢性疾病。其中很重要的一个原因是多次感染新冠。如今，真的到了不得不改变自己生活方式，努力提升免疫力的时候了。这几天就在想一个词：self reinvention。为什么有人能做到早起，而我一直做不到？为什么有人能去健身房锻炼，而我做不到？
 
 重新塑造自己，一方面我觉得需要付诸于行动；另一方面在于要舍得去投资自己，努力去建立一个良性的循环：锻炼提升免疫力 -> 身体更健康，少受慢性疾病的困扰 -> 更有强的精力 -> 做更多的事情 -> 改善情绪，改善意志力。
-
 
 ## Dimanche, 2023/10/29
 
