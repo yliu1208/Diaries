@@ -1,3 +1,10 @@
+## Jeudi, 2024/01/11
+今天也是，情绪莫名不是很对。  
+中午跟同事结束法语练习之后，在cafeteria看到了他跟另外一个同事。隔着一点距离，and he looks great.  
+After coming home, I just wanted to listen to music which is loud, maybe noisy, but can help one release emotions.  
+I picked up a novel by Virginia Woolf, but I have to admit that it's a difficult read.  
+One good thing, however, is that I feel my overall health is getting a little bit better. Still need to eat more vegetables.  
+
 ## Mardi, 2024/01/09
 
 今天情绪感觉有点低落。下班后躺在床上，听“安河桥”的时候给听哭了。音乐确实是很神奇，小时候常常看电视看哭，长大后已经很难看电视剧看哭，但最近几年，常常在听音乐的时候听哭，就好像音乐突然唤起了内心深处的一些情绪。  
