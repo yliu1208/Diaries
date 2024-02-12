@@ -1,3 +1,7 @@
+## Lundi, 2024/02/12
+I should quit. I mean, not quitting my job, but quitting liking someone.  
+![alt text](image.png)
+
 ## Jeudi, 2024/01/11
 今天也是，情绪莫名不是很对。  
 中午跟同事结束法语练习之后，在cafeteria看到了他跟另外一个同事。隔着一点距离，and he looks great.  
